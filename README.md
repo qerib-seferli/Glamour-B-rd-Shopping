@@ -1,2 +1,0 @@
-# GlamourBerdeShopping
-Glamour Bərdə Shopping
