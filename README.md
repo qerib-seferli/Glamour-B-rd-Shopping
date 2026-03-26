@@ -1,2 +1,2 @@
-# Glamour-B-rd-Shopping
+# GlamourBerdeShopping
 Glamour Bərdə Shopping
